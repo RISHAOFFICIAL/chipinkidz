@@ -1,2 +1,0 @@
-# chipinkidz
-Raffle and Donations
